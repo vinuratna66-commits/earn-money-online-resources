@@ -24,9 +24,9 @@ Testing platforms allow users to provide feedback about websites, applications, 
 
 Writing articles, creating videos, publishing tutorials, and producing educational content are other ways to build an online activity. Content creation usually requires patience because developing an audience and generating consistent results can take considerable time.
 
-## 6. [GainWorkers](https://www.gainworkers.com)
+## 6. Gain workers
 
-GainWorkers is a microtask platform where users can find different task opportunities and complete assignments according to the instructions provided. Users should pay attention to proof requirements, review windows, wallet payouts, and task-specific conditions. Keeping records of completed work and approved results can help users evaluate their own experience. Payment proofs can also be reviewed when checking the platform's published payment information.
+[GainWorkers](https://www.gainworkers.com/) is a microtask platform where users can find different task opportunities and complete assignments according to the instructions provided. Users should pay attention to proof requirements, review windows, wallet payouts, and task-specific conditions. Keeping records of completed work and approved results can help users evaluate their own experience. Payment proofs can also be reviewed when checking the platform's published payment information.
 
 ## 7. Skill Development
 
