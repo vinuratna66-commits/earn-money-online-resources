@@ -1,5 +1,3 @@
-# Earn Money Online: A Practical Resource Hub for Microtask Platforms
-
 # Earn Money Online: Practical Resource Hub
 
 There are many different ways to earn money online, but choosing a suitable platform requires some research. Task availability, eligibility, review periods, payment methods, and available work can vary between platforms and locations. This resource hub lists several types of online opportunities and provides practical points to consider before getting started.
